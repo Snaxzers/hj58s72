@@ -1,2 +1,2 @@
-# hj58s72
-Amcaacı
+Hadii Bakaıyım
+Amcana Saksoo Çeq
